@@ -1,1 +1,0 @@
-# rodprogramdev-image-resources
